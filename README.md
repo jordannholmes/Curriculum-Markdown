@@ -38,11 +38,12 @@
 **Responsible for heavy coping and filing, input of invoices, some reconciliation, distribution of Accounts Receivable reports, and bank deposits for various reconciliation.** <br>
 
 **May 2013-September 2016** <br>
-**Responsible for elementary accounting principles including receivables and payables, filing, correpsondence, and product ordering for personal fitness trainer ** <br>
+**Responsible for elementary accounting principles including receivables and payables, filing, correpsondence, and product ordering for personal fitness trainer.** <br>
 
 ## Honors and Activities
 
 **UCLA Dykstra Hall Floor Representative, 2016-2017** <br>
 **Class Rank: #1, Highland High School's Class of 2016** <br>
 **23rd Congressional District of California Kevin McCarthy Merit Award, May 2016** <br>
+# Curriculum-Markdown
 # Curriculum-Markdown
